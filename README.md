@@ -1,2 +1,2 @@
-# siber-d-nya-bagimsizlik-bildirgesi
+# siber-dunya-bagimsizlik-bildirgesi
 John Barlow'un meşhur bildirgesininin Türkçe'ye çevrimi
