@@ -6,6 +6,7 @@ Endüstriyel Dünyanın Hükümetleri, siz et ve çeliğin yorgun devleri, ben S
 
 Ne seçilmiş bir hükümetimiz var, ne de olacağa benziyor, bu yüzden size bir üst otoriteyle değil sadece özgürlüğün diliyle hitap ediyorum. Beyan ederim ki kurmakta olduğumuz küresel sosyal alan, bize empoze etmeye çalıştığınız tiranlıklardan doğası gereği bağımsızdır. Sizin bizi yönetmeye ne ahlaki açıdan bir hakkınız, ne de bizi buna zorlamanızdan endişe etmemizi gerektirecek yöntemleriniz bulunmamaktadır.
 
+
 Hükümetler adil güçlerini sadece yönetilenlerin rızasından alırlar. Siz ne bizden rızamızı talep ettiniz ne de biz size bu konuda rıza gösterdik. Sizi biz davet etmedik. Ne bizleri, ne de dünyamızı tanımıyorsunuz. Siber Dünya sizin sınırlarınızla çevrili değil. Bu sınırları bir kamu inşaat projesi gibi inşa edebileceğinizi düşünmeyin. Yapamazsınız. Bu doğanın bir eylemidir ve bizim kollektif eylemlerimizle kendisini büyütmektedir.
 
 Sizler ne bizim insanları biraraya getiren muazzam dialoğumuza katıldınız, ne de bizim pazarlarımızdaki zenginlikleri yarattınız.  Kültürümüzü, etiğimizi ya da şimdiden topluluğumuza sizin zorlamalarınızdan çok daha fazlasını sağlamakta olan yazılmamış kurallarımızı tanımıyor, bilmiyorsunuz. 
