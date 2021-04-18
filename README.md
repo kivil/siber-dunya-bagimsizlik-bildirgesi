@@ -4,7 +4,7 @@ John Perry Barlow <barlow@eff.org>
 
 Endüstriyel Dünyanın Hükümetleri, siz et ve çeliğin yorgun devleri, ben Siber Dünya'dan, Aklın yeni evinden geliyorum. Gelecek adına ben, geçmişe ait olan sizlerden, bizi yalnız bırakmanızı istiyorum. Aramıza hoş gelmediniz. Biraraya geldiğimiz bu yerde bir egemenliğiniz yok.
 
-Ne seçilmiş bir hükümetimiz var, ne de olacağa benziyor, bu yüzden size bir üst otoriteyle değil sadece özgürlüğün diliyle hitap ediyorum. İlan ederim ki kurmakta olduğumuz küresel sosyal alan, bize empoze etmeye çalıştığınız tiranlıklardan doğası gereği bağımsızdır. Sizin ne ahlaki açıdan bizi yönetmeye hakkınız, ne de bizi buna zorlamanızdan endişe etmemizi gerektirecek yöntemleriniz var.
+Ne seçilmiş bir hükümetimiz var, ne de olacağa benziyor, bu yüzden size öyle bir otoriteyle değil sadece özgürlüğün diliyle hitap ediyorum. İlan ederim ki kurmakta olduğumuz küresel sosyal alan, bize empoze etmeye çalıştığınız diktatörlüklerden doğası gereği bağımsızdır. Sizin ne ahlaki açıdan bizi yönetmeye hakkınız, ne de bizi buna zorlamanızdan korkmamızı gerektirecek yöntemleriniz var.
 
 Hükümetler makul yetkilerini sadece yönetilenlerin rızasından alırlar. Siz ne rızamızı talep ettiniz ne de biz size rıza gösterdik. Sizi biz davet etmedik. Ne bizleri, ne de dünyamızı tanımıyorsunuz. Siber Dünya sizin sınırlarınızın içinde yeralmıyor. Bir kamu inşaat projesi gibi bu sınırları inşa edebileceğinizi düşünmeyin. Yapamazsınız. Bu doğanın bir hikmetidir ve bizim kollektif eylemlerimizle kendi kendini büyütmektedir.
 
